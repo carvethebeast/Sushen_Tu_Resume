@@ -3,17 +3,17 @@
 linkedin.com/in/sushentu | 206.335.0920 | <sushentu@gmail.com> 
 
 ### EDUCATION
-**UNIVERSITY OF WASHINGTON: BA in Biochemistry, BA in Philosophy** (Seattle, WA)
+**UNIVERSITY OF WASHINGTON: BA in Biochemistry, BA in Philosophy** (Seattle, WA)  
 * Honors Thesis – “Ethical Concerns Surrounding Political and Social Implications of Implicit Biases”
 
 ### EXPERIENCE
-**Scheduling Coordinator** 
+**Scheduling Coordinator**   
 Managed high volume scheduling to meet hiring goals for AWS recruiting and revenue goals for dental office. Escalate issues causing negative candidate experience and identify solution for process improvement.
-_Key Results_
-* Fostered strong relationships with 60+ L6 and L7 business partners across 12 different locations. Constructed 48 onsite interviews within SLA to meet 2&5 Promise for all candidates. Delivered great candidate and business partner experience.
-* Compiled data on 100+ interviewer declines in 3 cities and reported trends to recruiter lead for Wiki revision. Pushed for regional RC alignment and ownership of Wiki in Proserve, which streamlined processes by generating quarterly cadence calls between leads and RCs.
-* Coordinated 6 candidates and secured 12 interviewers for hiring event within 2 weeks’ notice. Successfully hired 3 out of 6 candidates for technical L6 roles.
-* Coordinated 8-25 patient appointments per day; filled gaps in schedule and enforced charges on last minute cancellations. Exceeded monthly revenue goals up to 18%.
+_Key Results_  
+* Fostered strong relationships with 60+ L6 and L7 business partners across 12 different locations. Constructed 48 onsite interviews within SLA to meet 2&5 Promise for all candidates. Delivered great candidate and business partner experience.  
+* Compiled data on 100+ interviewer declines in 3 cities and reported trends to recruiter lead for Wiki revision. Pushed for regional RC alignment and ownership of Wiki in Proserve, which streamlined processes by generating quarterly cadence calls between leads and RCs.  
+* Coordinated 6 candidates and secured 12 interviewers for hiring event within 2 weeks’ notice. Successfully hired 3 out of 6 candidates for technical L6 roles.  
+* Coordinated 8-25 patient appointments per day; filled gaps in schedule and enforced charges on last minute cancellations. Exceeded monthly revenue goals up to 18%.  
 
 **Patient Care Coordinator**
 Managed accounts receivable, insurance claims, and treatment presentations with flexibility to pivot gears and prioritize tasks in order to place patient needs first.
