@@ -1,6 +1,6 @@
 ## Sushen Tu
 
-linkedin.com/in/sushentu | 206.335.0920 | <sushentu@gmail.com> 
+<sushentu@gmail.com> | 206.335.0920 | [LinkedIn](linkedin.com/in/sushentu)
 
 #### EDUCATION
 **UNIVERSITY OF WASHINGTON: BA in Biochemistry, BA in Philosophy** (Seattle, WA)  
