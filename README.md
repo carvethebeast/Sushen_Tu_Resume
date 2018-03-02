@@ -31,10 +31,10 @@ _Key Results_
 * Performed 4-10 lab techniques daily to assist in investigation of protein kinase interaction; calculate ratios of activation using biostatistics software.
 
 ### WORK HISTORY
-**Amazon.com, Inc. Contracted Recruiting Coordinator** (September 2017- Present)
-**Kois Dentistry Patient Care Coordinator** (January 2017- September 2017)
-**Capitol Hill/Montlake Dentistry Scheduling Coordinator** (January 2016- November 2016)
-**Seattle Central College, TRiO Student Support Services Multi-Disciplinary Tutor** (September 2014- January 2016)
+**Amazon.com, Inc. Contracted Recruiting Coordinator** (September 2017- Present)  
+**Kois Dentistry Patient Care Coordinator** (January 2017- September 2017)  
+**Capitol Hill/Montlake Dentistry Scheduling Coordinator** (January 2016- November 2016)  
+**Seattle Central College, TRiO Student Support Services Multi-Disciplinary Tutor** (September 2014- January 2016)  
 **University of Washington**
 * Writing Advisor at Center for Learning and Undergraduate Enrichment (May 2015- June 2016)
 * Chemistry Tutor at Office of Minority Affairs and Diversity Instructional Center (March 2012- June 2015)
