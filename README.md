@@ -2,11 +2,11 @@
 
 linkedin.com/in/sushentu | 206.335.0920 | <sushentu@gmail.com> 
 
-### EDUCATION
+#### EDUCATION
 **UNIVERSITY OF WASHINGTON: BA in Biochemistry, BA in Philosophy** (Seattle, WA)  
 * Honors Thesis – “Ethical Concerns Surrounding Political and Social Implications of Implicit Biases”
 
-### EXPERIENCE
+#### EXPERIENCE
 **Scheduling Coordinator**   
 Managed high volume scheduling to meet hiring goals for AWS recruiting and revenue goals for dental office. Escalate issues causing negative candidate experience and identify solution for process improvement.  
 
@@ -33,7 +33,7 @@ _Key Results_
 * Led 16 biochemistry workshops to over 60 students. Commended for significant contributions to instruction; awarded the Teddy Miller Outstanding Tutor Scholarship
 * Performed 4-10 lab techniques daily to assist in investigation of protein kinase interaction; calculate ratios of activation using biostatistics software.
 
-### WORK HISTORY
+#### WORK HISTORY
 **Amazon.com, Inc. Contracted Recruiting Coordinator** (September 2017- Present)  
 **Kois Dentistry Patient Care Coordinator** (January 2017- September 2017)  
 **Capitol Hill/Montlake Dentistry Scheduling Coordinator** (January 2016- November 2016)  
