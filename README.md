@@ -1,5 +1,4 @@
 # Sushen Tu
------------
 <sushentu@gmail.com> | 206.335.0920 | [LinkedIn](linkedin.com/in/sushentu)
 -----------
 ### EDUCATION
