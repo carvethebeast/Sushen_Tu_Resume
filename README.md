@@ -4,7 +4,7 @@ linkedin.com/in/sushentu | 206.335.0920 | <sushentu@gmail.com>
 
 #### EDUCATION
 **UNIVERSITY OF WASHINGTON: BA in Biochemistry, BA in Philosophy** (Seattle, WA)  
-* Honors Thesis – “Ethical Concerns Surrounding Political and Social Implications of Implicit Biases”
+_Honors Thesis – “Ethical Concerns Surrounding Political and Social Implications of Implicit Biases”_
 
 #### EXPERIENCE
 **Scheduling Coordinator**   
