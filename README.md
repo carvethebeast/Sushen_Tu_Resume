@@ -1,5 +1,5 @@
 # Sushen Tu
-<sushentu@gmail.com> | 206.335.0920 | [LinkedIn](linkedin.com/in/sushentu)
+<sushentu@gmail.com> | 206.335.0920 | [LinkedIn](https://linkedin.com/in/sushentu)
 -----------
 ### EDUCATION
 **UNIVERSITY OF WASHINGTON: BA in Biochemistry, BA in Philosophy** (Seattle, WA)  
@@ -9,7 +9,6 @@ _Honors Thesis – “Ethical Concerns Surrounding Political and Social Implicat
 **Scheduling Coordinator**   
 Managed high volume scheduling to meet hiring goals for AWS recruiting and revenue goals for dental office. Escalate issues causing negative candidate experience and identify solution for process improvement.  
 
-_Key Results_    
 * Fostered strong relationships with 60+ L6 and L7 business partners across 12 different locations. Constructed 48 onsite interviews within SLA to meet 2&5 Promise for all candidates. Delivered great candidate and business partner experience.  
 * Compiled data on 100+ interviewer declines in 3 cities and reported trends to recruiter lead for Wiki revision. Pushed for regional RC alignment and ownership of Wiki in Proserve, which streamlined processes by generating quarterly cadence calls between leads and RCs.  
 * Coordinated 6 candidates and secured 12 interviewers for hiring event within 2 weeks’ notice. Successfully hired 3 out of 6 candidates for technical L6 roles.  
@@ -18,7 +17,6 @@ _Key Results_
 **Patient Care Coordinator**  
 Managed accounts receivable, insurance claims, and treatment presentations with flexibility to pivot gears and prioritize tasks in order to place patient needs first.  
 
-_Key Results_  
 * Consulted over 600+ patients with treatment and financial presentations, advising on alternative payment plans and insurance packages.
 * Examined discrepancies in over 200+ patient account balances to revise insurance claims. Identified missing x-rays or justifications on insurance payments rejections and wrote reports as necessary. Reduced accounts receivable from $200K to $60K.
 * Consulted team of 10 employees including dentists on appropriate verbiage during patient hand-off and introduced new phone intake form. Revised financial plan templates to detail insurance breakdown and treatment sequence. Improved treatment acceptance by 15-25%.
@@ -27,7 +25,6 @@ _Key Results_
 **Research & Analysis**  
 Acquired strong analytic, knowledge, and education to advise clients and deliver innovative ideas. Designed course outlines and trialed effective teaching methods. Provided effective written and oral assessments based on data monitoring, extraction, and analysis.  
 
-_Key Results_  
 * Produced 4 week independent research project on ‘meta-cognition’ and collaborated findings with 5 other writing advisors to devise top 3 teaching methodologies. Presented findings on panel at annual UW English department Praxis Conference.
 * Led 16 biochemistry workshops to over 60 students. Commended for significant contributions to instruction; awarded the Teddy Miller Outstanding Tutor Scholarship
 * Performed 4-10 lab techniques daily to assist in investigation of protein kinase interaction; calculate ratios of activation using biostatistics software.
