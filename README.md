@@ -1,4 +1,5 @@
-# Sushen Tu
+# Sushen Tu  
+515 Harvard Avenue East #203, Seattle, WA 98102  
 <sushentu@gmail.com> | 206.335.0920 | [LinkedIn](https://linkedin.com/in/sushentu)
 -----------
 ### EDUCATION
@@ -39,10 +40,10 @@ _Honors Thesis – “Ethical Concerns Surrounding Political and Social Implicat
 
 ### LEADERSHIP, COMMUNITY, AND RESEARCH EXPERIENCE
 **Healthcare Alternative Spring Break, U. of Washington Participant** (March 2013 & March 2014)
-Assisted in presentation, workshop material such as educational, professional, and social experiences college offers to promote the pursuit of higher education to 100+ student assembly in rural communities
+* Assisted in presentation, workshop material such as educational, professional, and social experiences college offers to promote the pursuit of higher education to 100+ student assembly in rural communities
 
 **Abolitionist United, UW Chapter Community Outreach** (January 2014-September 2014)
-Organized a clothing drive with a partnering non-profit organization that assist women rescued from sex trafficking with job opportunities
+* Organized a clothing drive with a partnering non-profit organization that assist women rescued from sex trafficking with job opportunities
 
 **Research Assistant at Chavkin Lab Department of Pharmacology** (January 2014- June 2014)
 * Performed 4-10 lab techniques daily to assist in investigation of protein kinase interaction
@@ -52,8 +53,8 @@ Organized a clothing drive with a partnering non-profit organization that assist
 * Conducted 5 outreach events to elementary schools, after-school programs, ICHS, ACRS, and community centers to educate Seattle communities about dental hygiene
 * Educated over 3,500 residents about proper dental hygiene by preparing workshop with Spanish scripts and dental terminology in rural town Juxtlahuaca of Oaxaca, Mexico
  
-**Dental Education in the Care of Persons with Disabilities, UW - Dental Assistant Volunteer** (April 2011-June 2014) 
-**Teen Peer Advocate Program against Sexual Assault and Domestic Violence, ACRS  – Member** (Jan. 2008-June 2010)
-**2016 Presidential Campaign Volunteer for Bernie Sanders**
-**2008 Presidential Campaign Volunteer for Barack Obama**
+**Dental Education in the Care of Persons with Disabilities, UW - Dental Assistant Volunteer** (April 2011-June 2014)  
+**Teen Peer Advocate Program against Sexual Assault and Domestic Violence, ACRS  – Member** (Jan. 2008-June 2010)  
+**2016 Presidential Campaign Volunteer for Bernie Sanders**  
+**2008 Presidential Campaign Volunteer for Barack Obama**  
 **2008 Washington Bus Intern**
