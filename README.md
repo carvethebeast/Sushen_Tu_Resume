@@ -1,6 +1,5 @@
-# Sushen Tu  
-515 Harvard Avenue East #203, Seattle, WA 98102  
-<sushentu@gmail.com> | 206.335.0920 | [LinkedIn](https://linkedin.com/in/sushentu)
+# Sushen Tu   
+<sushentu@gmail.com> | [LinkedIn](https://linkedin.com/in/sushentu)
 -----------
 ### EDUCATION
 **UNIVERSITY OF WASHINGTON: BA in Biochemistry, BA in Philosophy, Minor in Dance Performance** (Seattle, WA)  
