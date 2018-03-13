@@ -3,7 +3,7 @@
 -----------
 ### EDUCATION
 **UNIVERSITY OF WASHINGTON: BA in Biochemistry, BA in Philosophy, Minor in Dance Performance** (Seattle, WA)  
-_Honors Thesis – “Ethical Concerns Surrounding Political and Social Implications of Implicit Biases”_
+_Honors Thesis – “Social, Ethical, and Epistemic Concerns Surrounding Political Implications of Implicit Biases”_
 
 ### EXPERIENCE
 **Amazon.com, Inc. Contracted Recruiting Coordinator** Seattle, WA (September 2017- Present)
